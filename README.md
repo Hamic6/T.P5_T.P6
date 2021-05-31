@@ -1,0 +1,2 @@
+# T.P5_T.P6
+Le T.P  est fait par : HAMICI KISWAYA Danny; PANZU NGUALA Happy; KIVUMI TUTONDELE Nephtali; MIKOBI PIEMA Stéphane; MPAKA BAKESI Josué; KINKUNDA LUZOLO Exaucé. 
